@@ -5,4 +5,4 @@ A ineficiência na combinação entre tratores e implementos desperdiça recurso
 
 #### Consulte nosso site para saber mais. 
 
-![alt text](<Macbook-Air-dynastartup.vercel.app (2).png>)
+![alt text](dyna_institucional.png)
